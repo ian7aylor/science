@@ -1,2 +1,2 @@
-ian7aylor.github.io
+www.ian7aylor.com
 =====================
